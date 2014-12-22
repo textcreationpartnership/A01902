@@ -35,28 +35,53 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The returne of prayers A treatise wherein this case how to discerne Gods answers to our prayers is b
+
+1. TO
+THE MUCH
+HONOVRED
+KNIGHT,
+SIR
+NATHANIEL RICH.
+
+1. THE TABLE.
+
 #####Body#####
 
-1. Chap. 1.CHAP. I.
+1. THE
+RETVRNE
+OF
+PRAYERS.
 
-1. Chap. 2.CHAP. 2.
+    _ Chap. 1.CHAP. I.
 
-1. Chap. 3.CHAP. III.
+    _ Chap. 2.CHAP. 2.
 
-1. Chap. 4.CHAP. IV.
+    _ Chap. 3.CHAP. III.
 
-1. Chap. 5.CHAP. V.
+    _ Chap. 4.CHAP. IV.
 
-1. Chap. 6.CHAP. VI.
+    _ Chap. 5.CHAP. V.
 
-1. Chap. 7.CHAP. VII.
+    _ Chap. 6.CHAP. VI.
 
-1. Chap. 8.CHAP. VIII.
+    _ Chap. 7.CHAP. VII.
 
-1. Chap. 9CHAP. IX.
+    _ Chap. 8.CHAP. VIII.
 
-1. Chap. 10CHAP. X.
+    _ Chap. 9CHAP. IX.
+
+    _ Chap. 10CHAP. X.
+
+1. TIDINGS
+OF PEACE TO
+BEE SPOKEN
+to Conſciences
+diſtreſſed.
+
+1. THE
+FOLLY OF
+RELAPSING
+after Peace ſpoken.
 
 **Types of content**
 
